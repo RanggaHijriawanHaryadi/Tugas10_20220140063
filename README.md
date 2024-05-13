@@ -1,0 +1,8 @@
+![code8](https://github.com/RanggaHijriawanHaryadi/Tugas10_20220140063/assets/127277495/e9c40e83-ac8d-41b4-b3d1-de18295a8eb3)
+![code7](https://github.com/RanggaHijriawanHaryadi/Tugas10_20220140063/assets/127277495/03d70034-8d5c-48dc-ba01-1e639e60d479)
+![code6](https://github.com/RanggaHijriawanHaryadi/Tugas10_20220140063/assets/127277495/8dfc2dea-1075-4f3a-863d-72dc0a273eb2)
+![code5](https://github.com/RanggaHijriawanHaryadi/Tugas10_20220140063/assets/127277495/10d6d516-29d0-4048-8dbd-646bd0b949d3)
+![code4](https://github.com/RanggaHijriawanHaryadi/Tugas10_20220140063/assets/127277495/228f0120-014d-441f-80a2-d27345177668)
+![code3](https://github.com/RanggaHijriawanHaryadi/Tugas10_20220140063/assets/127277495/446712c6-4964-46bc-a8e9-a59fa02a7dc1)
+![code2](https://github.com/RanggaHijriawanHaryadi/Tugas10_20220140063/assets/127277495/d61daf85-7124-44a5-a2e1-829e00a1df49)
+![code9](https://github.com/RanggaHijriawanHaryadi/Tugas10_20220140063/assets/127277495/8f5f5bd5-17af-4897-9e17-81bca953dd4e)
